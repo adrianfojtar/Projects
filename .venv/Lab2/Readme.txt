@@ -1,0 +1,1 @@
+Autor projektu: Klaudia Brodacka, Adrian Fojtar
